@@ -1,0 +1,1 @@
+# angry-birds-blueprint-class-24
